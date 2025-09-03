@@ -8,4 +8,4 @@ de vida diferentes e também a mesma regra de
 probabilidade em seus ataques, cada inimgo tem um ataque comum e um atque forte em 
 com probalidades de te atingir com um ou outro.
 
-link do jogo: https://nican10.itch.io/fighters-fury
+Baixe e jogue aqui:👉 https://nican10.itch.io/fighters-fury
